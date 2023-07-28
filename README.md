@@ -1,1 +1,1 @@
-## Namaste worl
+## Namaste world
